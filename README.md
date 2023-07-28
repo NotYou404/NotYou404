@@ -2,4 +2,4 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning lots of things
 - 💞️ I’m looking to collaborate on lots of things
-- 📫 Message me on Discord: `NotYou#2907`
+- 📫 Message me on Discord: `TheCheese_knife`
